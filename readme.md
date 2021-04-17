@@ -1,4 +1,4 @@
-# DEMO
+# DEEMO
 
 Test your Might!
 
@@ -7,4 +7,4 @@ Mortal Kombat!!
 
 ## Name new roster
 
-Chris Dijak
+Chris Dijak FOFJFJFFJFFK CrisS aNGEL
